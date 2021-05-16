@@ -1,1 +1,0 @@
-# cute-animal-trial2-ar-projectkwi1wk
